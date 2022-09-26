@@ -1,0 +1,1 @@
+Organização formada por alunos estudantes dos cursos de Engenharia de Computação e Ciência de Computação da Escola de Engenharia de São Carlos (EESC-USP) e do Instituto de Ciências Matemáticas e Computação (ICMC-USP).
